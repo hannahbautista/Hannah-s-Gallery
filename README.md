@@ -8,3 +8,8 @@ Over the years, my parents have used different point and shoot cameras. Even tho
 
 ![My friend Karla at Guitar Center](DSCN1441.JPG)
 ![My friend Lawrence playing the drums](DSCN1446.jpg)
+![Ezrah's dog](dog.JPG)
+![Lighting Ezrah's birthday candle](candle.JPG)
+![Cerritos Homecoming Game](hoco.JPEG)
+![In-N-Out](innout.JPEG)
+![School mirror selfie](mirror.JPEG)
