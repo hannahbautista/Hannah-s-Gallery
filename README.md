@@ -20,4 +20,4 @@ Over the years, my parents have used different point and shoot cameras. Alhough 
 ![School mirror selfie](mirror.JPEG)
 
 ## More Content
-Follow me on my photography Instagram for more content! 
+Follow me on my photography (Instagram)[https://www.instagram.com/hannaholiviaa__/) for more content! 
