@@ -5,6 +5,8 @@ Hello, I'm Hannah and my passions are film and photography! For the past few yea
 ![ck](IMG_1508.JPEG)
 ![lawrence](lawrence.jpg)
 ![ube](IMG_2544.JPG)
+![raiche](raiche.jpeg)
+![jaica](jaica.jpeg)
 
 ## Old Camera
 Over the years, my parents have used different point and shoot cameras. Alhough they are outdated, the types of pictures they produce are starting to become more popular again. The pictures that are taken on these cameras provide a more nostalgic feel which is why I also like using these cameras to to capture memories for fun  
@@ -16,3 +18,6 @@ Over the years, my parents have used different point and shoot cameras. Alhough 
 ![Cerritos Homecoming Game](hoco.JPEG)
 ![In-N-Out](innout.JPEG)
 ![School mirror selfie](mirror.JPEG)
+
+## More Content
+Follow me on my photography Instagram for more content! 
